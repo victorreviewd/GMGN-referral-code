@@ -18,6 +18,7 @@ Enter the code: Type in "N3EARvap" into the designated field.
 Confirm and continue: Follow the platform's instructions to complete the signup or transaction process.
 
 ## What is GMGN?
+![Image](https://github.com/user-attachments/assets/fbce82fd-6991-440f-86c2-3d3eb3dfa538)
 
 GMGN is a crypto-focused app designed to help users track and trade meme tokens more efficiently. It’s especially popular among traders looking to spot trends early and follow smart money in the world of memecoins.
 
