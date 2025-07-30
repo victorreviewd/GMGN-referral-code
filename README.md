@@ -2,6 +2,8 @@
 
 GMGN is a topnotch trafing platform for degens and memecoin trading enthusiasts. In this article I will be sharing a working referral code for 30% off your trading fees.
 
+<span style="font-family: helvetica, arial, sans-serif;"><a href="https://rebrand.ly/gmgn-app"><img class="aligncenter loaded" src="https://i.imgur.com/XSo2dvH.png" data-lazy="true" /></a></span>
+
 ## GMGN referral code:
 
 The working GMGN referral code is “N3EARvap”. Use this on your Signup to unlock a special 30%  discount off trading fees.
@@ -60,4 +62,6 @@ It’s like having a crypto analyst, sniper, and portfolio manager rolled into o
 ## Conclusion: GMGN referral code:
 
 GMGN referral code is “N3EARvap”. Use this on your signup. GMGN offers an intuitive platform for Degen crypto trading. With so many features at your disposal, you can't help but maximize its features for ultimate profit.
+
+<span style="font-family: helvetica, arial, sans-serif;"><a href="https://rebrand.ly/gmgn-app"><img class="aligncenter loaded" src="https://i.imgur.com/XSo2dvH.png" data-lazy="true" /></a></span>
 
